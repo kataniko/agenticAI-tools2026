@@ -2,7 +2,7 @@
 
 Best agenticAI Tools
 
-<img width="498" height="414" alt="image" src="https://github.com/user-attachments/assets/6e247518-afc9-4bda-ab76-77c65bfd6ba4" />
+<img width="498" height="414" alt="image" src="https://github.com/user-attachments/assets/391c8ddd-1326-4fb1-b171-10e5ef58eb51" />
 
 NO CASO DO FORMATO IMAGEM SER POUCO , TAMBÉM TENS EM GIF
 
